@@ -1,4 +1,4 @@
 live this websit -
 
 
-www.parha.click
+www.partha.click
